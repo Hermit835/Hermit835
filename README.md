@@ -9,4 +9,4 @@
 
 - 🤔 I’m looking for help with getting an entry level job.
 
-- 📫 How to reach me: Hermitconall@gmail.com
+- 📫 How to reach me: Jacob.Hicks835@outlook.com
